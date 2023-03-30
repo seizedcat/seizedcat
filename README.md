@@ -1,4 +1,4 @@
 I’m @seized
-I’m interested in fucking skids
+I’m in love with pasting
 t.me/tcpfed
 
